@@ -13,3 +13,6 @@ https://drive.google.com/file/d/1ue_I1WNZzQlh34UEnBB4yBhAj3gzs_Bw/view?usp=drive
    https://screenrec.com/share/hixcngCb6Y
     Agile_Template:
     https://docs.google.com/spreadsheets/d/16dSLreYhf8-P1ZfaVFKv1JqQ-jJFNS_D/edit?usp=drivesdk&ouid=107846972475112519322&rtpof=true&sd=true
+     PPT Presentation Link:
+     
+https://drive.google.com/file/d/16tYPdOmAjMzhqdgh1snlyQUydK28m_f5/view?usp=drivesdk
